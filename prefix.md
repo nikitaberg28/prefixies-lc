@@ -14,7 +14,6 @@ Ripggfull: ебаный афкшер
 Kneterkost29481: канатка
 Mrdav1d2152: ии 3.4 афк.
 Godjo_cot: анимешник (обходить стороной)
-olil7708: это НЕ! девушка
 Hl3bx: еблан
 Torleolord: теадор
 olil7708: ezzzz
