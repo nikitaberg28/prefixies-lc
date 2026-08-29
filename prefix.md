@@ -17,3 +17,5 @@ Godjo_cot: анимешник (обходить стороной)
 Hl3bx: еблан
 Torleolord: теадор
 olil7708: ezzzz
+OKoBoao: какаобоб
+HyperLamp221518: ХайперПС
