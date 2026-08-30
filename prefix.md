@@ -4,7 +4,7 @@ MashaB3rg: опять берг хуйню тестит.
 DeDyshkaBystit: Дюпер ебаный
 MeiMisakiy: Привет Котакбас
 Mq_rash: раш.
-Proart22: Главный спонсор шабашки
+Proart22: 325к
 ScrappyKnot562: денчик слазиет
 ZXCwolkers1527: Снюсик232
 FallingAngel278: пачка кэмела
